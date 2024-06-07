@@ -1,1 +1,1 @@
-# w88
+[W88](https://w88.ing/) is the largest online soccer betting house and casino currently in Vietnam and the Asian market. Operated by MARQUEE HOLDINGS LTD; Headquartered in MAKATI city - the gambling industry capital of the Philippines. An online betting company licensed by First Cagayan Leisure & Resort Corporation itself.
